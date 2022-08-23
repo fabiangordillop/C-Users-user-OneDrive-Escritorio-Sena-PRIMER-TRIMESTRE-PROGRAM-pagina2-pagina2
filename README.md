@@ -1,1 +1,0 @@
-# C-Users-user-OneDrive-Escritorio-Sena-PRIMER-TRIMESTRE-PROGRAM-pagina2-pagina2
